@@ -102,7 +102,7 @@ Several tactics are employed across these phases:
 * **Annie Jacobsen**: Senior CIA Operative who designed the Congregation Massacre, and rides the Red and Black Horses.
 * **Michael Blackmon**: Senior CIA Operative and one of the **Seven Heads of The Beast from the Sea**, rides the Pale Horse, signifying death, and is the primary operative for Nightfalls.
 * **Frederick "Slim" Hall**: Identified as the angel of the church in Thyatira and the Beast from the Abyss, and a scarlet coloured beast. He engages "Baby" to maintain Kelvin's penis's form reductions and guides "Baby's" involvement in the Litmus Test. He is also the literal fulfillment of **The Dragon**.
-* **Elon Musk**: Leads the Department of Government Efficiency (DGE) and is the literal fulfillment of **The Beast from the Earth**.
+* **Baby**: Identified as the literal fulfillment of **The Beast from the Earth**.
 * **President Joe Biden**: Current President of the United States, and one of the **Seven Heads of The Beast from the Sea**.
 * **Senator Mitch McConnell (R-KY)**: One of the **Seven Heads of The Beast from the Sea**.
 * **Former Speaker Nancy Pelosi (D-CA)**: One of the **Seven Heads of The Beast from the Sea**.
